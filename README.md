@@ -1,1 +1,1 @@
-# PS3-Jailbreak-File-Guide
+# PS3 Jailbreak Guide
